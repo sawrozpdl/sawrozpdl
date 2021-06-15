@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me ? co-ording
+- 📫 How to reach me ? by coding
